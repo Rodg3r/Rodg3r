@@ -1,0 +1,4 @@
+- Hi my name is @Rodg3r 👋
+- I have an interest in Web Development which I'm currently learning
+- I would be happy to try help someone else with their problems
+- I'm on Twitter with the handle @RodrigoSobral0 if you would like to connect
